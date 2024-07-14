@@ -1,4 +1,4 @@
-### Hi, My name Is Abhiram - Freelance full stack web developer
+### Hi, My name Is Abhiram 
 
 
 <br />
